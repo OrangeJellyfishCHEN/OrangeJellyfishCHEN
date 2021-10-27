@@ -7,3 +7,4 @@
 - 📫 How to reach me: lotaustralin12@gmail.com
 - 😄 Pronouns: She/Her
 - 🍊 Hobbies: drawing
+- 🐱 I have a cat named Tommy.
